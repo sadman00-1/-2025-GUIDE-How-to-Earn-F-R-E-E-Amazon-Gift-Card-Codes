@@ -1,1 +1,1 @@
-# -2025-GUIDE-How-to-Earn-F-R-E-E-Amazon-Gift-Card-Codes
+https://github.com/sadman00-1
